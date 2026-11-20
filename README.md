@@ -1,2 +1,0 @@
-# BEST-E-
-SON GÜNCEL
